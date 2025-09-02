@@ -1,16 +1,6 @@
 
-Work on furniture, small architecture projects
+Tiny architecture.
 
-Bookshelf for Mallika's room.
+Furniture design.
 
-Hook for the bathroom door.
-
-Planters for back porc.
-
-
-Extra
-
-Chairs for fun / revise old project
-
-Furniture for Central Hardwoods?
-
+Central Hardwoods?
